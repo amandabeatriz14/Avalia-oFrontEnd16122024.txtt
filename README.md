@@ -1,0 +1,1 @@
+# Avalia-oFrontEnd16122024.txtt
